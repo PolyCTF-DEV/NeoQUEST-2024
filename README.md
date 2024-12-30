@@ -9,6 +9,6 @@
 
 ## Команда разработки заданий
 [Анисимов Егор](http://t.me/myqookie)<br/>
-[Ставров Максим](http://t.me/myqookie)<br/>
-[Заручевский Александр](http://t.me/myqookie)<br/>
-[Гранкин Глеб](http://t.me/myqookie)<br/>
+[Ставров Максим](https://t.me/M0shp1t)<br/>
+[Заручевский Александр](http://t.me/z4vr1k_official)<br/>
+[Гранкин Глеб](https://t.me/Black_jonga)<br/>
