@@ -12,3 +12,4 @@
 [Ставров Максим](https://t.me/M0shp1t)<br/>
 [Заручевский Александр](http://t.me/z4vr1k_official)<br/>
 [Гранкин Глеб](https://t.me/Black_jonga)<br/>
+[Шапоренко Сергей](https://t.me/sergk0t)<br/>
